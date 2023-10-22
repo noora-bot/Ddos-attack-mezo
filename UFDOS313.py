@@ -23,7 +23,7 @@ print('''
 
 
 
-Coded By abdalmahdi313 && UFO 313 TEAM
+Coded By Mezo20000☠ && UFO 313 TEAM
 ''')
 while True:
 	cmd=input("======>#")
