@@ -2,17 +2,17 @@
 -->MEZo❤<--
 <div align="center">
   
-<a href="https://t.me/+u9nrS-yRQB1iODNk"><img align="center" src="https://ibb.co/5Yf0TNv" alt="قروبي تلغرام" height="112" width="300" /></a>
+<a href="https://t.me/+u9nrS-yRQB1iODNk"><img align="center" src="https://ibb.co/5Yf0TNv" alt="GROUP TELGRAM👥" height="112" width="300" /></a>
 <br>
 <div>
 <br>
   <div>
-<a href="https://t.me/SJGDdw" target="blank"><img align="center" src="https://ibb.co/BZpgKRT" alt="قناتي" height="112" width="310" /></a>
+<a href="https://t.me/SJGDdw" target="blank"><img align="center" src="https://ibb.co/BZpgKRT" alt="MY CHANNEL🫂" height="112" width="310" /></a>
   <div>
 <br>
     <br>
     <div>
-<a href="@BLACK1_HAT"><img align="center" src="https://ibb.co/WgWsMZW" alt="قروبي واتس" height="112" width="300" /></a>
+<a href="@BLACK1_HAT"><img align="center" src="https://ibb.co/WgWsMZW" alt="GROUP WHATSAPP💙" height="112" width="300" /></a>
 <div>
   <br>
   <br>
