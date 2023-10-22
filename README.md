@@ -12,12 +12,12 @@
 <br>
     <br>
     <div>
-<a href="https://chat.whatsapp.com/FB2ROxgLeX466EphmWaRw6"><img align="center" src="https://ibb.co/WgWsMZW" alt="قروبي واتس" height="112" width="300" /></a>
+<a href="@BLACK1_HAT"><img align="center" src="https://ibb.co/WgWsMZW" alt="قروبي واتس" height="112" width="300" /></a>
 <div>
   <br>
   <br>
   <div>
-  <a href="https://t.me/+u9nrS-yRQB1iODNk"><img align="center" alt="قروبي تلغرام" height="112" width="300" /></a>
+  <a href="https://t.me/+u9nrS-yRQB1iODNk"><img align="center" alt="MY TELEGRAM👿" height="112" width="300" /></a>
     <div>
 <br>
 اداه حجب الخدمه ddos attack  اداه قويه محدثه مضافه لها ملف فيه مجموعه من البروكسيات
